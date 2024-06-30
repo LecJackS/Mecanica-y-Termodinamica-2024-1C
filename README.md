@@ -21,3 +21,7 @@ Materia electiva de Ciencias Naturales para la carrera Licenciatura en Ciencia d
 #### Playlist clases Verano 2021
 
 > https://www.youtube.com/watch?v=-hYw-2rOFqY&list=PLNbPNPgqTfs5zk19830T6ZZIBV-FMDXfq
+
+#### Drive con material de la materia (parciales, guías, apuntes, resúmenes)
+
+> https://drive.google.com/drive/folders/1wTSC0dDeTnXLhESfKdl3tzEU3ieiU4imUUwWNvbWmGMsAdPeqXMBkYo65j_-5TDOe6-YKHTt
